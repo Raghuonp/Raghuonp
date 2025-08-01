@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m a fresher<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning software testing<br>💬 Ask me about any testing<br>
+🔭 I’m a fresher<br>👯 I’m looking to work on software company <br>🤝 <br>🌱 I’m currently learning software testing<br>💬 Ask me about any testing<br>
 
 
 ## 🌐 Socials:
